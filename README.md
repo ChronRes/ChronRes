@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @ChronRes, you can reach me at <chron@chronresources.com>
+- 👋 Hi, I’m @ChronRes, you can reach me at <support@chronresources.com>
